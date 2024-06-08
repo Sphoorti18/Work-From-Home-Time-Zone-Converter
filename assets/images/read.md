@@ -1,1 +1,1 @@
-
+https://copilot.microsoft.com/images/create/work-from-home-infographics/1-6663ad04b0d049f683e317943bbba523?id=KNBNPcW%2fJe%2bgFpMKua3i1w%3d%3d&view=detailv2&idpp=genimg&idpclose=1&thId=OIG2.AVJfYTHpWbLADav_CwXE&lng=en-US&ineditshare=1
